@@ -1,2 +1,2 @@
 # IU
-This is IU fanclub2 in UMP
+This is IU sucking club edited
